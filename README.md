@@ -301,19 +301,21 @@ Putting the 41 names in a single column ...
 | 56 |                              |(3:23) Joseph                |
 | 57 |                              |(3:23) Jesus                 |
 
-If there is a _historical reasons_ for the **NON-HISTORICAL** genealogy being included then **what is it?**
+If there is a **NON-HISTORICAL** _reason_ for the **FALSE HISTORICAL** genealogy being included then **what is it?**
 
 ## The Point
 
-HOW does knowing this **useless statistic** of 3 x 14 generations help you in your salvation???
+We need to go back to fundamentals.
+
+Q. HOW does knowing this **useless statistic** of 3 x 14 generations help you in your salvation???
 
 That is, _WHY_ is this number, 14, even listed, THREE, times? Why is 3 x 14 = 42 **implied** in a list of **only 41 names** but in reality there are 45 names??
 
-We are explicitly told the answer why in Matthew 13:13 by Yeshua/Jesus:
+A. We are explicitly told the answer to why this was included via Matthew 13:13 by Yeshua/Jesus:
 
 > This is why I speak to them in parables: "Though seeing, they do not see; though hearing, they do not hear or understand.
 
-It becomes blatantly obvious that the `Literal` is NOT the point -- for those that take the time to actually SEE.  They discover that the Bible is draped in the cloak of history and sprinkled with many clues of "WAKE UP".  There is MUCH more then "just" a literal story.  The Bible is **rich with symbolism:**
+It becomes blatantly obvious that the `Literal` is NOT the point -- for those that take the time to actually SEE.  They discover that the Bible is draped in the cloak of history and sprinkled with many clues of "WAKE UP".  There is MUCH more then "just" a literal story.  The Bible is filled **rich with symbolism:**
 
 * The Tree of Life has 12 fruits. (Revelation 22:2) 
 * There were 12 disciples,
@@ -329,8 +331,12 @@ Rabbi Simeon summarized it:
 >
 > "Thus the tales related in the Torah are simply her outer garments, and woe to the man who regards that outer garb as the Torah itself, for such a man will be deprived of portion in the next world.
 
-One of the fallacies of Atheism is that they _"Throw the baby out with the bathwater."_  Unable to comprehend the three-fold nature of scripture: the Literal, Allegorical, and Spiritual meanings being presented to the reader.  There are literal lies so that it is IMPOSSIBLE to cling to the literal story; instead they are like a splinter in the mind, trying to get you THINK about what you are reading.
+One of the fallacies of Atheism is that they _"Throw the baby out with the bathwater."_  Unable to comprehend the three-fold nature of scripture: the Literal, Allegorical, and Spiritual meanings being presented to the reader.  There are literal lies so that it is IMPOSSIBLE to cling to the literal story; instead they are like a splinter in the mind, trying to get you THINK about what you are reading instead of being a mindless zombie just consuming content.
+
+Take for example the common parable of _The Boy Who Cried Wolf._  As long as you understand the deeper meaning does it matter if the story never literally happened?  Of course not.  The literal description is just a backdrop to help you _remember the story._
 
 Thus this 3 x 14 pattern is an `Allegory` for a deeper truth trying to be conveyed in spite of the actual list being **45** or **57** names.
+
+Maybe Douglas Adams joking about the number 42 being the answer to _the meaning of life, the universe and everything_ has more to it?  *Wink* ;-)
 
 Last updated: April 12, 2022.
